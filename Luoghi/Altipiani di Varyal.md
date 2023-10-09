@@ -1,0 +1,16 @@
+### Geografia
+Gli [[Altipiani di Varyal]] sono delimitati a ovest dalla curva del [[Nastro]], il fiume che raccoglie i vari tributari e le sorgenti del versante meridionale dei [[Picchi Vesprogrigio]]. Il fiume segna anche il confine settentrionale degli altipiani in senso stretto. Il più vasto [[Ducato di Gondral]], incentrato sull'antica capitale di [[Hontion]], [[Gondral]].  A sud il [[Mare Raggiante]] e le [[Scogliere dell'Approdo]] formano confini naturali. A est, le colline e le scogliere scendono lievemente verso le [[Piane di Nuarach]]. 
+
+Si dice che le antiche città costiere delle [[Scogliere dell'Approdo]] siano una delle meraviglie di [[Aerthus]]. Costruite nei primi anni dopo l'[[Approdo]] per ospitare il popolo di [[Yrliss]] e i suoi [[Grifoni]], queste meravigliose città sono scavate direttamente nella bianca roccia delle scogliere. [[Gondral]], la capitale, è di certo la più maestosa. La sua [[Spira dell'Aureora]], maestosa torre eretta dove [[Amrya]] ha posto il primo passo su [[Thynar]], è visibile in tutti gli altipiani.
+
+Altre città di nota sono il bastione di [[Myrah]], dove i [[Cavalcagrifoni]] fermarono le armate del [[Gran Regno del Corno d'Avorio]] grazie all'intervento della ascesa [[Amrya]]. Il porto di [[Baranin]] alla foce del [[Nastro]], mantiene le flotte di [[Gondral]] e i suoi commerci. Infine, [[Sanrath]] è l'esempio perfetto dell'amicizia dei [[Cavalcagrifoni]] e dei [[Clan delle Pendici]], costruita nei primi anni dell'insediamento nel luogo dove vennero stretti gli [[Accordi dei Cipressi]], gli alberi che vigilano sugli [[Altipiani di Varyal]].
+
+### Popolazione
+Anche dopo secoli dall'[[Approdo]], parte della popolazione ha i tratti distintivi degli [[Umani]] di [[Yrliss]], nonchè una cultura e dialetto che ancora conservano le antiche tradizioni del freddo meridione. Tuttavia granparte della popolazione appartiene ai [[Clan delle Pendici]], [[Umani]] del [[Thynar]] simili etnicamente agli abitanti dei [[Moarmerdom]] occidentali. Le [[Scogliere dell'Approdo]] sono di certo una delle aree più avanzate culturalmente del [[Thynar]] e ancora conservano alcuni dei fasti del [[Primo Regno]] di [[Hontion]]. Questo è fonte di orgoglio e influenza per i locali, soprattutto ora che la capitale, e con essa la [[Corona Alata]] è a [[Martelcorno]]. Il [[Trono del Grifone]], che si dice essere la sella di [[Amrya]] è ancora nella [[Spira dell'Aureora]], custodita dal duca di [[Gondral]] e dalla [[Guardia del Grifone]].
+
+Gli [[Altipiani di Varyal]] e la [[Guardia del Grifone]] hanno gli ultimi [[Grifoni]] e [[Cavalcagrifoni]] di [[Hontion]]. Nemmeno la [[Guardia Imperiale]] può vantare tale onore, limitandosi a cavalcare possenti stalloni e vestire corazze alate.
+
+### Governo
+Tutta la zona è sotto il controllo del [[Ducato di Gondral]], formalmente un vassallo di [[Hontion]]. La costa, sulla sponda meridionale del [[Nastro]], è amministrata da [[Gondral]] con un sistema feudale ibrido che mantiene le tradizioni di [[Yrliss]], mentre la sponda nord del fiume è abitata da diversi [[Clan delle Pendici]] che, pur dichiarando la loro lealtà a [[Gondral]] (non a [[Hontion]] o a [[Martelcorno]] si noti), sono grandemente autonomi e seguono le [[Usanze degli Avi]], similimente ai [[Moarmerdom]].
+
+Al momento attuale il duca è [[Araval VI]].

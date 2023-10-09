@@ -1,0 +1,1 @@
+Nome per le popolazioni di [[Umani]] che abitano la zone degli [[Altipiani di Varyal]] da prima dell'[[Approdo]].

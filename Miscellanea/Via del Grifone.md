@@ -1,0 +1,1 @@
+Insieme di norme di comportamento, arti marziali, insegnamenti, tecniche, e tradizioni tramandate dalle [[Scuole del Grifone]] dai tempi della prima [[Guardia del Grifone]] tra i [[Cavalcagrifoni]].

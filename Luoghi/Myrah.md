@@ -1,0 +1,1 @@
+fortezza nelle [[Scogliere dell'Approdo]], negli [[Altipiani di Varyal]]. [[Guerra della Costa Bassa]] [[Mhyhr Duach]] [[Myr]]

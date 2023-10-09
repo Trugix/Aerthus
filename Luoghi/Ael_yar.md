@@ -1,0 +1,1 @@
+La perduta patria celeste degli [[Ael]]. Il nome è secondo la parlata corrente degli [[Elfi Verdi]] .
