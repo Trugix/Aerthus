@@ -1,1 +1,0 @@
-Capo clan dei [[Clan delle Pendici]]

@@ -1,1 +1,0 @@
-Capitale del deserto antica città semovente nanica rubata dalla ribellione e da secoli sommersa dalle sabbie. Usata dai popoli del deserto come capitale e città tempio. (Jeddha + Zodanga rotta meets mortal engines and homeworld)

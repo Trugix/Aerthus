@@ -1,1 +1,0 @@
-[[Crachar]] del [[Clan delle Pendici]] [[Na Aogach]].

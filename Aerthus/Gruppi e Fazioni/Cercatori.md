@@ -1,1 +1,0 @@
-[[Ael]] che cercanoi altri popoli e posti nello spazio per rinvigorirsi. fazioni anche loro tra chi più esploratore e chi più sfruttattore.

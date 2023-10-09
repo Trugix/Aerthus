@@ -1,1 +1,0 @@
-Mare tra [[Xanyar]] e [[Thynar]]. Bagna la [[Costa Bassa]], e gli [[Altipiani di Varyal]]. La città più importante è [[Gondral]].

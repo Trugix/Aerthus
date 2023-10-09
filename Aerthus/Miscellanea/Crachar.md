@@ -1,1 +1,0 @@
-Tipico insediamento fortificato dei [[Clan delle Pendici]], solitamente sede del [[Maher]]

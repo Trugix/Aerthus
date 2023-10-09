@@ -1,1 +1,0 @@
-Re di un [[Khaz]] dei [[Nani]]

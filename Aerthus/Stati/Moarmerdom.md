@@ -1,1 +1,0 @@
-[[Moarmaer del Vyrtal]] [[Protettorato d'Oro Bianco]] [[Picchi Vesprogrigio]] 

@@ -1,3 +1,0 @@
-Combattenti scelti degli [[Altipiani di Varyal]], che fungono da guardia personale del [[Duca di Gondral]]. Alcuni di loro hanno l'onore di essere dei [[Cavalcagrifoni]], come il loro attuale comandante [[Jahyl Na Aogach]]. Molto spesso rappresentano il meglio che le [[Scuole del Grifone]] hanno da offrire, ma i loro membri vengono anche scelti tra i figli e figlie delle famiglie nobili della zona e dei [[Clan delle Pendici]], che considerano questo come un grande onore.
-
-Oltre al loro comandante, altri membri degni di nota sono [[Faolthar Yahn 'il Grosso']], [[Branwen An Charagh]] e [[Falenos v'Ynas]].

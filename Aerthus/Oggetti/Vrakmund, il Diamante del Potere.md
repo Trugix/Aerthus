@@ -1,1 +1,0 @@
-[[Gmundaar]] di [[Kadrash]]

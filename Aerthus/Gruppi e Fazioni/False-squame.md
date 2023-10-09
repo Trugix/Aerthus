@@ -1,1 +1,0 @@
-Sono quelli che sono nati coin sembianze più umanoidi tra gli [[Squamati]]

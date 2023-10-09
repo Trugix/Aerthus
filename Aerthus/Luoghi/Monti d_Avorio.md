@@ -1,1 +1,0 @@
-Monti del [[Thynar]] centrale, l'[[Incudine]] è il più prominente. Attualmente [[Martelcorno]] è la città più grande ai suoi piedi.

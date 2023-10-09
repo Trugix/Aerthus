@@ -1,1 +1,0 @@
-Titolo dato al sovrano di [[Miral]]. [[Thyma]] fu la prima ad averlo. La [[Corona Bianca]] forgiata ad [[Olam]] ne è il simbolo.

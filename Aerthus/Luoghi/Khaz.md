@@ -1,1 +1,0 @@
-fortezza dei [[Nani]] governata da un [[Khazrak]]

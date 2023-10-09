@@ -1,1 +1,0 @@
-Terre fertili al centro di [[Hontion]], con i [[Picchi Vesprogrigio]] a ovest e [[Martelcorno]] e i [[Monti d'Avorio]] a est. 

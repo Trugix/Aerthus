@@ -1,1 +1,0 @@
-Nome generico per i rettiliani e simili che abitano [[Aerthus]]. La maggior parte di queste razze si trova su [[Xanyar]] e nelle giungle di [[Thynar]].

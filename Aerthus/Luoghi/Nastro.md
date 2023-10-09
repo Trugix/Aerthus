@@ -1,1 +1,0 @@
-fiume [[Altipiani di Varyal]], [[Picchi Vesprogrigio]]

@@ -1,1 +1,0 @@
-[[Thyma]][[Duca di Miral]][[Lasarys IV]]

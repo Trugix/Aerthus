@@ -1,5 +1,0 @@
-Un mosaico di piccoli regni feudali della [[Costa della Seta]] a tra il mare e le [[Giungle di Smeraldo]]. Devono la loro fortuna alla raccolta della seta di [[Magnarak]], i giganteschi ragni della giungla, e al delicato bilanciamento di commerci con gli [[Squamati]], specialmente i [[False-squame]] e gli altri stati del [[Thynar]]. 
-
-La popolazione locale è di pelle scura, e si dice sia in parte discendente dai primi umani scacciati dalla giugla dagli [[Squamati]] e da un gruppo di [[Jah'ad]] migratori da tempo separati dai loro consanguinei. Sono famosi per il loro agili guerrieri, che sono anche i [[Raccoglitori]] della seta. Armati di particolari alabarde, si destreggiano tra aracnidi e fronde per recuperare il finissimo prodotto degli insetti da cui proviene la grande ricchezza della zona.
-
-Non vi è un governo centrale, e i piccoli regni sono accomunati solo da un continuum linguistico e culturale. Il più grande regno è quello con capitale [[Sjanya]], rinomata per la [[Reggia degli Innumerevoli Veli]], un sontuoso palazzo adornato di drappi e veli della seta più fine.

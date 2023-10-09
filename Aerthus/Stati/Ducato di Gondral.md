@@ -1,1 +1,0 @@
-vedi [[Altipiani di Varyal]]

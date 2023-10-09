@@ -1,1 +1,0 @@
-Uno dei maggiori[[Clan delle Pendici]] che sta tra i [[Rachen]] e gli [[Ochar]]

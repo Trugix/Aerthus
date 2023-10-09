@@ -1,1 +1,0 @@
-Battaglia tra le colline di [[Ala]] sud e colline di Kadrash dove gli eserciti sono così crandi che portano rinforzi per anni rimpallandosi avanti e indietro fino allo sfinimento.
