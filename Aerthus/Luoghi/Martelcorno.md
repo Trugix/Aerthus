@@ -1,0 +1,1 @@
+Grande città ai piedi dell'[[Incudine]]. Il più potente dei regni [[Umani]] del [[Thynar]].

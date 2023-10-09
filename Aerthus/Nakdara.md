@@ -1,0 +1,1 @@
+È il servo con la palma che fa vento al re degli dei, che nei millenni ha conquistato il controllo di venti e brezze.

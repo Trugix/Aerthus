@@ -1,0 +1,1 @@
+Costa del [[Mare Raggiante]], nel [[Thynar]]. Tra gli [[Altipiani di Varyal]] a ovest, le [[Piane di Nuarach]] a nord, e la foce del [[Verdalluvio]] e est.

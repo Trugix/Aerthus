@@ -1,0 +1,1 @@
+Montangna dei [[Monti d'Avorio]] nel [[Thynar]]. Sede di [[Khazdahar]] e successivamente di [[Hak'Radum]]. Ai suoi piedi sorge la città di [[Martelcorno]].

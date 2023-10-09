@@ -1,0 +1,3 @@
+Immense distese nel [[Jah'ad Orientale]]. Con grandi formazioni rocciose a forma di fungo erose dal vento. Alla loro base sabbie finissime scorrono e girano mosse da [[Leylines]] magnetiche creando fiumi e correnti che vengono usate dagli abitanti locali per spostarsi e dagli animali che vi vivono. Animali come le varie specie di [[Durascaglia]] che grazie alle componenti metalliche nei loro corpi possono sfruttare le correnti come pesci.
+
+Le città dei locali qui si sviluppano dentro e sotto le formazioni rocciose, al sicuro dal sole cocente sopra e dalle bestie sotto.

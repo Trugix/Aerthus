@@ -1,0 +1,8 @@
+[[Signore di Altonido]]
+
+42 anni
+Un po' ossessionato dalle cose cavalleresce e dal prestigio personale in un modo non cattivo ma quasi ridicolo. Un tizio pomposo, dai grandi baffi ricurvi, ma calvo. Non esita a trovare scuse per girare vestito in pompa magna. Si atteggia a essere un grande guerriero, e lo era in gioventù, ora comunque ha esperienza e ha partecipato in alcuni tornei. Un bonaccione, se preso con le dovute maniere. Adora essere il signore di altonido perchè gli piace il panorama, la foresta per cacciare, e francamente, non ha da gestire troppi paesani.
+
+Questo però rende difficile vivere con i suoi standard, tenersi al passo con i tempi è difficile, soprattutto quando devi mantenere anche una moglie che vuole essere alla moda come le altre dame, e una prole mascile a cui continui a regalare armature e destrieri e una prole femminile che cresce per essere delle piccole copie della madre. in tutto ne ha 3 degli uni e 3 delle altre, c'è poco da fare ad altonido. Per ora.
+
+Appena ha sentito delle proposte per i grifoni nel suo castello non stava nella pelle, di cui ora ha un po' troppa. Ha dovuto diplomaticamente rifiutare, non potendo permettere l'onta di condividere il castello con quei meravigliosi, fantastici, leggendari, maestosi pennuti che assolutamente non vorrebbe vedere cavalcati dai suoi figli. Ha così offerto un accordo che permettea di salvare la faccia, aiutare [[Olam]] a reclamare [[Shatrak]], di cui si tiene le terre antistanti e parte dei futuri proventi, e qualche grifone ovviamente. [[Altonido]] verrà così riportato al suo antico splendore, lui potrà permettersi il suo stile di vita e migliorare il rispetto per la sua famiglia tra i nobili del [[Ducato di Miral]].
